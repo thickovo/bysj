@@ -1,2 +1,0 @@
-# bysj
-biyesheji
